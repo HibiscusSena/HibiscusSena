@@ -1,4 +1,4 @@
--🌺 Hi, I’m @HibiscusSena
+-🌺 Hello, I’m Sena :]
 
 -🎀 I’m interested in creating mods for games
 
